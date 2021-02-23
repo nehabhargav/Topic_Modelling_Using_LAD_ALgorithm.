@@ -9,7 +9,7 @@ We had the same questions in our mind , which were as follows
 
 How would world react to the Pandemic of 2020 also called as COVID 19 Pandemic ?
 What would be the most discussed topics amoung people ?
-Could there be any grouping in thoes topics ? 
+Could there be any grouping in those topics ? 
 
 The results of this analysis were amazing .And answered all out questions.
 
